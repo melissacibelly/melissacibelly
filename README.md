@@ -1,16 +1,13 @@
-## Hi there 👋
+* Olá! Seja bem vindo (a) ao meu perfil... 😸
 
-<!--
-**melissacibelly/melissacibelly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* 🙋‍♀️ Meu nome é *Melissa Cibelly de Oliveira Andrade*
 
-Here are some ideas to get you started:
+* 📆 Tenho 15 anos, nasci dia 11 de setembro de 2009
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* Gosto de esportes, meu favorito é o futebol ⚽
+
+* Meu jogador favorito é o Raphael Veiga 🫀
+
+* Torço para o palmeiras 🐷💚
+
+* Eu amo o homem aranha 🕷️🕸️
