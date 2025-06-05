@@ -8,7 +8,7 @@
 
 * Meu jogador favorito é o Raphael Veiga 🫀
 * 
-* ?[](https://media1.tenor.com/m/0bEioByAZlkAAAAC/te-amo-palmeiras-palmeiras.gif)
+* ![](https://media1.tenor.com/m/0bEioByAZlkAAAAC/te-amo-palmeiras-palmeiras.gif)
 
 * Torço para o palmeiras 🐷💚
 
