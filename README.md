@@ -14,5 +14,8 @@
 * Torço para o palmeiras 🐷💚
 * ![](https://media1.tenor.com/m/htcCqsvHjJ8AAAAd/campe%C3%A3o-brasileiro-jogadores-palmeirenses.gif)
 
-* Eu amo o homem aranha 🕷️🕸️                   
-*                                        ![](https://media1.tenor.com/m/TjPRaO9SFJkAAAAC/spider-man-staring.gif)
+* Eu amo o homem aranha 🕷️🕸️
+
+* ![](https://media1.tenor.com/m/TjPRaO9SFJkAAAAC/spider-man-staring.gif)
+                  
+*                                        
