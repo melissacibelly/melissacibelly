@@ -9,6 +9,8 @@
 ![](https://media.tenor.com/g5ZqH2VDd5gAAAAi/waiting-%D0%B6%D0%B4%D0%B5%D0%BC.gif)
 * Gosto de esportes, meu favorito é o futebol ⚽
 
+* ![](https://media.tenor.com/_OQhYkiT354AAAAi/aizen-sosuke-3162.gif)
+
 * Meu jogador favorito é o Raphael Veiga 🫀
  
 * ![](https://media1.tenor.com/m/0bEioByAZlkAAAAC/te-amo-palmeiras-palmeiras.gif)
