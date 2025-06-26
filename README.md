@@ -6,6 +6,7 @@
 ![](https://media.tenor.com/LoziwJSpAyAAAAAi/hulk-dance.gif)
 * 📆 Tenho 15 anos, nasci dia 11 de setembro de 2009
 
+![](https://media.tenor.com/g5ZqH2VDd5gAAAAi/waiting-%D0%B6%D0%B4%D0%B5%D0%BC.gif)
 * Gosto de esportes, meu favorito é o futebol ⚽
 
 * Meu jogador favorito é o Raphael Veiga 🫀
