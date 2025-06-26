@@ -9,7 +9,7 @@
 * Gosto de esportes, meu favorito é o futebol ⚽
 
 * Meu jogador favorito é o Raphael Veiga 🫀
-* 
+ 
 * ![](https://media1.tenor.com/m/0bEioByAZlkAAAAC/te-amo-palmeiras-palmeiras.gif)
 
 * Torço para o palmeiras 🐷💚
